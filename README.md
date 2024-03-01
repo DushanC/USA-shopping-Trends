@@ -1,0 +1,1 @@
+# USA-shopping-Trends
